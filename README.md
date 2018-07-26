@@ -1,2 +1,2 @@
-# --Rahul Khandelwal
+# Rahul Khandelwal
 Updated-CV
